@@ -1,3 +1,3 @@
 # Git Guts
 
-vfbaef
+Dzieki za odwiedziny
